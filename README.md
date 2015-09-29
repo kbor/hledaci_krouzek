@@ -1,1 +1,0 @@
-# hledaci_krouzek
